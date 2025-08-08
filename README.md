@@ -1,6 +1,6 @@
 ## Course Title: Future Lives Studio (October) > 
 
-## Assignment Blogs (Awaiting commencement) >
+## Assignment Blogs (Awaiting Commencement) >
 
 ## Author
 
