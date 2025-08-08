@@ -1,4 +1,4 @@
-## Course Title: ST | Future Lives Studio (October) 
+## Course Title: ST | Future Lives Studio 
 
 ## Assignment Blogs (Awaiting Commencement) >
 
