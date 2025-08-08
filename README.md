@@ -1,4 +1,4 @@
-## Course Title: Future Lives Studio (October) > 
+## Course Title: Future Lives Studio (October) > COMM2591
 
 ## Assignment Blogs (Awaiting Commencement) >
 
